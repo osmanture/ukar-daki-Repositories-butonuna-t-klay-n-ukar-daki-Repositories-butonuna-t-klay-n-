@@ -1,1 +1,4 @@
+
+.
+.
 # ukar-daki-Repositories-butonuna-t-klay-n-ukar-daki-Repositories-butonuna-t-klay-n-
